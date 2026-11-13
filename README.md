@@ -25,3 +25,8 @@
 
 - GitHub : [@TheLxxCLoUD](https://github.com/The-Lxx-CLoUD)
 - Telegram : [@lxxcloud](https://t.me/lxxcloud)
+
+### 👤 Author :
+
+- GitHub : [@TheLxxCLoUD](https://github.com/The-Lxx-CLoUD)
+- Telegram : [@lxxcloud](https://t.me/lxxcloud)
